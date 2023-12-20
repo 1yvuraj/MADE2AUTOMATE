@@ -14,3 +14,6 @@ s://github.com/1yvuraj/MADE2AUTOMATE/assets![WhatsApp Image 2023-12-20 at 8 10 1
 
 
 VIDEO LINK->https://drive.google.com/file/d/1eNASP3aCZ6gesZ_VAy8XKU4lF2ySIKdC/view?usp=sharing
+
+
+CODE LINK->https://drive.google.com/drive/folders/1ZD4sntEzvrsQPa6CFJrlalAW9PmIHIyL?usp=sharing
