@@ -1,5 +1,5 @@
 # MADE2AUTOMATE
-VIDEO LINK->https://drive.google.com/file/d/1eNASP3aCZ6gesZ_VAy8XKU4lF2ySIKdC/view?usp=sharing
+VIDEO LINK->https://drive.google.com/file/d/1GFOX3pqhs3tcP9n7cNZ0ZRmcqnfMfmrN/view?usp=sharing
 
 CODE LINK->https://drive.google.com/drive/folders/1ZD4sntEzvrsQPa6CFJrlalAW9PmIHIyL?usp=sharing
 
